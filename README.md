@@ -1,0 +1,1 @@
+# VT2023-ET047G-Elektroteknik-GR-A-Ell-ra-och-elektronik-6-hp-normal-
